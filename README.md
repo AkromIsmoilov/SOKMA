@@ -1,0 +1,1 @@
+Alyou bratishkalar qalaysizlar
